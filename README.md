@@ -3,7 +3,7 @@
 - Monday, Nov 27:
   
 - Wednesday, Nov 29:
-
+Evan Fitzmaurice
 - Monday, Dec 4:
 
 - Wednesday, Dec 6:
