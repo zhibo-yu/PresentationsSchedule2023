@@ -4,7 +4,7 @@
   
 - Wednesday, Nov 29:
 
-- Monday, Dec 4:
+- Monday, Dec 4: Zhibo Yu
 
 - Wednesday, Dec 6:
 
